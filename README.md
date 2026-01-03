@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @X0IG
-- 👀 I’m interested in nothing
+- 👀 I’m interested in gooning and playing games 16h a day
 - 🌱 I’m currently learning nothing
 - 😄 Pronouns: HE/SHE/IT
 - ⚡ Fun fact: Dog is a animal and X0IG is a retard
